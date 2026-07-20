@@ -1,0 +1,279 @@
+温州小松鼠（squirrel）热水器厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 8 1 1 - 5 9 6 0-，部分渠道也显示为 (4 0 0 - 8 1 1 - 5 9 6 0) 或4 0 0-8 1 1-5 9 6 0-。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0-8 1 1-5 9 6 0--：2026年07月20日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0 - 8 1 1 - 5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括温州小松鼠（squirrel）热水器不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+温州小松鼠（squirrel）热水器24小时售后服务热线上线（2026最新公告）
+温州小松鼠（squirrel）热水器售后服务电话：4 0 0 - 8 1 1 - 5 9 6 0-
+温州小松鼠（squirrel）热水器售后24小时客服热线：(4 0 0 - 8 1 1 - 5 9 6 0)
+本公司主营温州小松鼠（squirrel）热水器维修 →温州小松鼠（squirrel）热水器；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 - 8 1 1 - 5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，温州小松鼠（squirrel）热水器服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月20日12时04分00秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+温州小松鼠（squirrel）热水器贴心升级服务，现推出全国 24 小时服务热线 4 0 0-8 1 1-5 9 6 0-。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显温州小松鼠（squirrel）热水器对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/16c7dd2d915f8f3d45a70a51946b43090d647dab 
+江苏电信 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/a5d2647cd43774f185a70f616fdd69bac559752b 
+江苏 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/8eaff6dae8d5e94495f8b00c9f022068d76da75a 
+安徽广电 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/4e450dad3212d0453435f2d098efd0e74adc206f 
+海南电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/504ee38ab3326554505ab03dd7cc34870fd8601d 
+海南联通组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/984cd37af00720e6bd8b06929de9e6f5dd57b3c2 
+湖北 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/f913c807c12dac7c807df3a82ddeef9d45dc34a7 
+湖南电信组播直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/0103976b60742b563fac5ef12d35452cd941d657 
+湖南电信 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/7e27a8c68d6b37b8915149fa8c2fde29e4a2408d 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/825a97a43afc1491243f5edefb7c74524ac281f5 
+湖南联通 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/75bc1cfb28a9172846cf9fa720986c5119ead23c 
+湖南移动 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/ed4b53f518c0e745d24c0e3b7c183e169ef55a22 
+湖南 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/03897e951925e22804b1ab536c381151f6ec6482 
+重庆移动组播直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/385cd30c60693f95582024b3ab1f035095f340cc 
+重庆联通组播直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/8b7127f7ae0197631613542773c5688706e3b6bb 
+重庆联通直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/7532a69039377c90f2334295377750ca8a6c3f22 
+重庆电信组播直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/41db526b591c21516d3e8afdf6a6b6cb0066cf9b 
+重庆电信直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/448ef7c75ccdba376c75c6dbe338b35026b15874 
+重庆 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/584e7ac5456f60a45987488f9c764e065cff27f9 
+四川移动组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/ff8a8e114c426e8e5205003d0860733066af7d23 
+四川电信 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/1d2b58eb9e3bcddbe3568a6ba547ea63dd92d1d4 
+四川电信 IPTV 组播直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/601847fe96405b735ece3d24da98bcaffa11d840 
+四川广电 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/b1fe4d8fbd52264816799c821653e51d8ee060ab 
+四川联通组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/7d5de7b034af41fc14cdc687785883e2145b3957 
+四川联通 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/a593fd6456a0c3e9f62d7c60462edbaf56674f0a 
+四川 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/3f4a4d0e55c485e45ce696ad5587e9360aa0d98d 
+云南电信组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/1ccac81422a2da5c1973e0c2df4a9f77a43fbc72 
+云南移动 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/36be8514b78f884a6ad84340b1164375a231df43 
+云南 IPTV 直播源： https://github.com/ucualbs/gppyjwc/commit/304f46bd2793c7c21a9db5c1a50594381dd810a6 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/7dbde30c686983475d92f8b516df7fa03fb8a7fb 
+贵州移动 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/7c68dfb092a5ac7500eb5fefca4c9f3ee5076408 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/feb87c30a30d9ef117c6486ce00e627f44f949d0 
+贵州联通 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/243b2203a2935618f5deb6140b83b9bac163a217 
+贵州 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/eeb0b4610759d47622d1ac8315aea5610f9af613 
+福建联通组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/e023b48070d1b4b84770f1e5c099bd70b89b1972 
+福建联通 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/4caf8f195fa85ab606ade3ba3e265ad7ec3ae0ff 
+福建移动 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/23fc1753b8949aba1d07007d4c7ee6ada0b38561 
+福建电信组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/7d286c86919ccf48d2ae086c5e87a68ea68fffff 
+福建电信 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/8c2603d7f5877029bb0ed72b5f647919ac0835ae 
+福建 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/706ad84fe4c5c078fc546f31fe94f708c99a4b2c 
+安徽移动 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/23fd9fb3a15ff2171e697c58864acf9e956f3fd6 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/658ccd3eb3218360bf12408f45dac045c655514d 
+安徽电信 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/18cea3db92130fc312803d56d2b43e5d2f8f249a 
+安徽联通 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/b1ddc1b4bea3d1f0cfdc2d97c1ce9599b4d2fa5e 
+安徽 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/5db60460cf7bc2ce9e5e5a8355ecc78c23d9790d 
+陕西地方台直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/622f3665696c447a19102d9468a3613fdba4c1a0 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/d5e1a3f75a5c2ce1a08c8455c3b1876449955875 
+陕西电信 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/b8088b986077274f5378f627fd23af56636cc312 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/959acf888e7cdfe4133b63a02e383f2d788de0d6 
+陕西移动 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/aa4daff9cf99fb915f40fdbc6779023b1793bccd 
+陕西 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/207a95f75bb534486f5274d175adb1cffa87b9fc 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/468e8047b4bf5a9fab063d4531f1aeb0fcbb5a45 
+甘肃移动 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/b168c942e9598b98c465d6766b8838186408e989 
+甘肃 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/a00ec098a44eb0beaeb2557934db662de1bff299 
+山西移动组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/31bda5d3924fc08d3c50c9dfc3e1ea8084159099 
+山西联通组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/a7fd73cafaa45dc6e5d0050d3559491f16b36827 
+山西联通 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/9f001adad1521faca3ec1c753f12fb20148eba36 
+山西 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/d6216059db7cdb9a5522a4970f85d065ddf2649b 
+天津电信组播直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/25f324950b6e3a6bbe264f06ce63f920ba4ba833 
+天津联通组播直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/d4c6378208faabca232196b6152e60c2403561a3 
+天津 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/32c03dc2e3c307e639c89e0e7e64104f95f302b4 
+上海移动直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/c0a4318623f05bf28d6bbb5d39a909f8be5427eb 
+上海联通组播直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/c687a1bfa06bf1daa9c748dedbfdcdeaf3dff239 
+上海联通直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/828894e4946bfa923176b2cffaa0c4ba1f261694 
+上海电信组播直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/f258a36b1452b54e31cd24a036f6295ac5aedfbf 
+上海电信直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/ea3a533fd18e5e7a46a44689a86450740652a035 
+上海 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/1c4b093b2fd73f1434cb1d1cbcc6fd1bffb4e9fb 
+北京移动 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/3c29911a0a8085a0f4213acbb6401de2554306df 
+北京移动组播直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/c85f6adf456a83a8a62b8f53107ffdbb524fe460 
+北京电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/38445f15933fc3e97d23c23ee39026739fb1d436 
+北京联通组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/aed0cee2646c3cd8a93f642806a4ac15f2898db5 
+北京联通 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/b5e25b51acd63489d773c4588528d3989d0c7bad 
+北京 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/896ec50c205e88e50cf18be395a2620e700fca83 
+部分地区的移动可全网通用： https://github.com/vgedo-krowde/chiyoucy/commit/909d9666525adf981d3721aa25aa16fa1ade5ccc 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/ah9082008-moedhu/isazpo/commit/ee3ed17d010148f366814ca587b45680ef71483e 
+广播电台下载地址： https://github.com/ucualbs/gppyjwc/commit/3e1242eb704dbd5c2667c240b576824797bf9db2 
+国内景区直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/3213c72249afb9338eaa609cdd6d957d00a98da9 
+轮播华数黑莓下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/7f31a4ccb659948e8ccb91cca86ed9bd77917b2f 
+台湾香港澳门电视台直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/35f4686373ef6d3907166f94cd9b9e6d299d9244 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/ucualbs/gppyjwc/commit/bb0adbe57ad0516159d275458386d38c57d15c46 
+国外电视台直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/f97d618dd68e71758d788f72773b9d2600ad092c 
+卫视地方台安徽农大下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/8dd571ff7f7f683ff73e359dc65fa2d6b33b0dfe 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/fedf132674f3cb171ace910ff8831901d9f15f5c 
+卫视上海源下载地址： https://github.com/ucualbs/gppyjwc/commit/6fd1a57e9c250936c29fc85f7c21dd917de60e65 
+卫视重庆广电 下载地址： https://github.com/croxdangelondon/poplygj/commit/5c121559c2de332c20a9321db61cb89329a282e0 
+卫视百视 TV 下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/237899c24bce0eeab29713053c96ce6df410af25 
+移动 IPv6 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/866a3e5318a4f5acb57c5dfb1b3a414283a7554b 
+国内电视台 IPv6 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/f523a0e0f38eb0fed9f378cec47fe4eba0c86b9f 
+各大卫视、上千个地方台： https://github.com/vgedo-krowde/chiyoucy/commit/aaf27bbb4f180154affc75d4a1c871a0fbd032e7 
+国内电视台直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/7d755fc56212169cbf3d0cf7756a84b466d66020 
+全国可用直播源： https://github.com/ah9082008-moedhu/isazpo/commit/d99f42a2bf571eead0d53fea40a3a589213b88d6 
+包括完整内容所有已知频道： https://github.com/ucualbs/gppyjwc/commit/0fc24d1b4a6573330e7e04243c4ecbb948406b91 
+除成人内容以外的已知频道： https://github.com/croxdangelondon/poplygj/commit/ebc62e5bd1a809b3c40e4104e85f007da6168a52 
+收集来自世界各地公开可用的 IPTV： https://github.com/vgedo-krowde/chiyoucy/commit/1594d91178367ef07a5d71813fc5c6b7aac269c7 
+稳定地址： https://github.com/ucualbs/gppyjwc/commit/e75d8eadc0a900d1b0deea5519b829ead73a0848 
+2026-07-19 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/ah9082008-moedhu/isazpo/commit/4e5214a8c5ca2c187d9f77d5f0aeb7de5c2f702c 
+2026-07-19 更新 IPTV 工具： https://github.com/vgedo-krowde/chiyoucy/commit/adca91d3e3299e91d0fd3145e7a973ac257f5afe 
+2026-07-19 更新世界各地 IPTV 频道： https://github.com/croxdangelondon/poplygj/commit/9a805ef371f20c5f9af4106ff60c8bb08ccaa031 
+2026-07-19 更新全国可用直播源： https://github.com/ah9082008-moedhu/isazpo/commit/aca786a84dec9228fe3f4dc373cd86f9bf4c1a21 
+新增各地运营商的 IPTV 地址： https://github.com/ucualbs/gppyjwc/commit/7f4d96eb063a0ab572339aa08b4b44a72d15589b 
+插件推荐： https://github.com/croxdangelondon/poplygj/commit/54afbda722bb9a4507cb6df4acc4416b0c26005d 
+视频教程增加： https://github.com/vgedo-krowde/chiyoucy/commit/80abc73d679b0fe89fb8cc881c07c2eebaebbda2 
+咪咕源失效： https://github.com/ucualbs/gppyjwc/commit/6c4206e28c1605d9236b361b276cb6199d228c30 
+2026-07-19 更新各地运营商 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/885e7e7f887c052617dc6454abab6be3645f8c69 
+2026-07-19 更新台湾香港海外直播源： https://github.com/croxdangelondon/poplygj/commit/6a0ef64b0033fa9be223a31b29f664bff6174339 
+新增辽宁广电直播源： https://github.com/vgedo-krowde/chiyoucy/commit/6625a6fc861b724743c7051c06144c19a2b9ea01 
+新增江西广电直播源： https://github.com/ucualbs/gppyjwc/commit/33ff11c1a675a53df788739f7ce59edf572542c3 
+新增湖北广电直播源： https://github.com/ah9082008-moedhu/isazpo/commit/0d194a482503ed5e0c69988c55bdc6e45da44d66 
+新增中国广电 cctv + 卫视直播源： https://github.com/croxdangelondon/poplygj/commit/f7f3f314329717b5318b2e3de56762b28bcf1803 
+新增辽宁电信 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/68ce95b82c9f08eb6c80342892c8665d7a18df91 
+2026-07-19 更新台湾香港海外直播源： https://github.com/ucualbs/gppyjwc/commit/afea4d88f0e8ef0d6a5019fbe05ca1a034fb5a82 
+新增辽宁移动直播源： https://github.com/croxdangelondon/poplygj/commit/48ad2f62c2aef001f7ad774e1c30060b7c7662f2 
+新增浙江杭州华数 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/81b770c78f463cf7d36ca163ddf06fc9f538580e 
+新增广东联通 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/fb6a1b49c47fe0fc561f019463747d0b96976d88 
+新增四川广电 IPTV 直播源： https://github.com/ucualbs/gppyjwc/commit/48afdad13ce6e60a14438aa3658b35de9c31b755 
+新增云南电信 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/8b6b17445462d7bc4c4c3764b5c301a46332d60c 
+2026-07-19 更新国内电视台直播源： https://github.com/croxdangelondon/poplygj/commit/224ffc794900b69553b553c2e73ba0e6ab52756d 
+新增福建电信 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/c943f61a68da8fa125795cc1ad435b7399633a91 
+新增天途云 CCTV + 卫视： https://github.com/ucualbs/gppyjwc/commit/57884256c052d400b77617733a3f2c6242f67abd 
+新增腾讯云 CCTV + 卫视： https://github.com/croxdangelondon/poplygj/commit/8e0b6f90d278a6f54872891fca01d5bf4369a3e2 
+新增 CCTV 付费频道直播源： https://github.com/ah9082008-moedhu/isazpo/commit/ef5952bcb0af66e213c99897e8f9d8fe3dc9fce8 
+新增广播电台： https://github.com/vgedo-krowde/chiyoucy/commit/7090d7e9266bc2677aadec5729733ce34378955d 
+2026-07-19 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/ucualbs/gppyjwc/commit/3a6099f29d52c6e4a7ab5db14cad6b3d874dab88 
+2026-07-19 更新 台湾香港海外直播源： https://github.com/vgedo-krowde/chiyoucy/commit/332d011019788b0b7fa1089c2f620da07705c347 
+2026-07-19 更新 国内电视台直播源： https://github.com/croxdangelondon/poplygj/commit/c9c0d202fbbc45381e6ac0bd54fdcf31c21a3578 
+国家直播源： https://github.com/ah9082008-moedhu/isazpo/commit/07f04e0216eb371a11f35cf2166fbd35701a2f84 
+直播源： https://github.com/ucualbs/gppyjwc/commit/4bed5e11626caa839d3edcf6e502ca9c2034172d 
+影视剧场： https://github.com/vgedo-krowde/chiyoucy/commit/bd79edec5ae1c9fc6d9416882ebca8e44cdedafb 
+台湾香港澳门： https://github.com/croxdangelondon/poplygj/commit/a18c2b4a30dada1af9e32a3784499b1459c4ce00 
+国外电视台： https://github.com/ah9082008-moedhu/isazpo/commit/c651a4631d3411784783ecdd19add2093ebee9dc 
+国内电视台： https://github.com/ucualbs/gppyjwc/commit/63f6b4a32ec4f8fb90d01f2239cf18b0d06ec5f3 
+更早期 2026-07-19 更新： https://github.com/ah9082008-moedhu/isazpo/commit/19929ce311c08ba43cfdfc01a23627ac3e41b5b0 
+各地运营商 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/4b003b19acc81576a6b4a59fc6a36b21714a2b6a 
+全国可用直播源： https://github.com/ucualbs/gppyjwc/commit/5bdfecf2b095dfd68a2f9e02294aa2343fd78599 
+2026-07-19 更新： https://github.com/croxdangelondon/poplygj/commit/2c7005f7e38fd7c6ad10562108eb4f39d3506f82 
+赞助者： https://github.com/ah9082008-moedhu/isazpo/commit/7b7600b888040ac9d87c09d7e902fffbbb9a2efc 
+文章： https://github.com/croxdangelondon/poplygj/commit/fdb4b2fece329dbfa16dd207033cb3fd07ac37c5 
+视频教程： https://github.com/vgedo-krowde/chiyoucy/commit/c5b95b0b2bcf119f2863dbe9b2b32270d79bf4a5 
+插件： https://github.com/ah9082008-moedhu/isazpo/commit/f2dbc0b2569265a40176a994a7aaf36ecfe6d0e7 
+工具： https://github.com/ucualbs/gppyjwc/commit/a4539068ccc90d0351ccd0c4ced492f6404e4793 
+URL： https://github.com/croxdangelondon/poplygj/commit/83d48dbc46cd93e4b64bbef02733e0e2db513114 
+目录： https://github.com/vgedo-krowde/chiyoucy/commit/dd84a1ac0c35da3be4de7533d31b34ee3d324025 
+喀麦隆直播电视频道： https://github.com/ah9082008-moedhu/isazpo/commit/197c5fb2a9fbca45c9fb23eacd3161c0e038b496 
+阿富汗直播电视频道： https://github.com/ucualbs/gppyjwc/commit/b634d1b314ea7db5529bd7166627a9fa01e6a49b 
+海地的直播频道： https://github.com/croxdangelondon/poplygj/commit/15f5f89ab72c5abdf8252b70ae70098e0c887520 
+高棉直播和泰国电视，电影和电视剧： https://github.com/vgedo-krowde/chiyoucy/commit/978aac75bd70d6496e3bd2e3387ab2620f7c9e52 
+厄瓜多尔直播频道： https://github.com/ah9082008-moedhu/isazpo/commit/086a4c38cdf3cf46f444925c21104da0d1ea1efb 
+玻利维亚直播频道： https://github.com/ucualbs/gppyjwc/commit/509056cd024885c0ec1c5a95dbc492048c792f8b 
+萨尔瓦多直播频道： https://github.com/croxdangelondon/poplygj/commit/ad8e14c1fcc5f3fa755369c6a365478c0fb84f0f 
+危地马拉直播频道： https://github.com/vgedo-krowde/chiyoucy/commit/5ba77772f77c35836d5f84160e8f2d0f0947343d 
+洪都拉斯直播频道： https://github.com/ah9082008-moedhu/isazpo/commit/c48929f573dd438a2d2173215f030541388b9bc1 
+多米尼加共和国直播频道： https://github.com/ucualbs/gppyjwc/commit/b1cc0979b33a054d025c245cd10de239e5499e1f 
+哥斯达黎加直播频道： https://github.com/croxdangelondon/poplygj/commit/54749a09fe03df966f8fdadbc55c8332f405ca5b 
+来自世界各地的个电视频道和个摄像机： https://github.com/vgedo-krowde/chiyoucy/commit/b5267dda608eb9f143e7d58f29623c578d712d60 
+免费数据库： https://github.com/ah9082008-moedhu/isazpo/commit/7ba3edac4fa67e14db3093899f918943a89d4573 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/ucualbs/gppyjwc/commit/66698624b7927e137fba6b14ae2b3746da560142 
+超过个国家地区的个高清频道和： https://github.com/croxdangelondon/poplygj/commit/abd540fa94a1982e6c97e9ca2a8e2000ab806390 
+超过个直播电视频道影视节目： https://github.com/vgedo-krowde/chiyoucy/commit/968b90f92c36a8342cffeb93e4d7b95856f64ed9 
+提供商列表： https://github.com/ah9082008-moedhu/isazpo/commit/2c0887e267e5ba404877f84193b8c12e11c96203 
+提供者： https://github.com/vgedo-krowde/chiyoucy/commit/544634a188ef902bf3387e8641a5e8be6f28096d 
+客户端服务器媒体播放器： https://github.com/croxdangelondon/poplygj/commit/d8c4c32d4e85573fc1328dac6979ba1158be17f9 
+支持播放列表文件： https://github.com/ucualbs/gppyjwc/commit/4e17dd4feef99a24795d34201d899475ff83c501 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/ah9082008-moedhu/isazpo/commit/7fcafa9ad41633d9dd95950488aa3a6fdfa982e7 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/croxdangelondon/poplygj/commit/55875c2beea98361d967aac3712c589f71dc3e17 
+点 即可： https://github.com/ah9082008-moedhu/isazpo/commit/848860ac726a2c64594a98772e6d1b0b1b437ac3 
+第三行不用管： https://github.com/vgedo-krowde/chiyoucy/commit/a696f0968add1c1de7f1d4b79289fdd701ec9d74 
+第二行输入上面给你的地址： https://github.com/ucualbs/gppyjwc/commit/9e3a1f10f9765efbb9336e85376155b76b3586db 
+第一行随意输入一个名字： https://github.com/croxdangelondon/poplygj/commit/f79489c06b73ccbc279f0ab9cc2cf51fb5cdea9b 
+选择 远程播放列表文件： https://github.com/ah9082008-moedhu/isazpo/commit/e1a15c0f02777db84e6fc75f2e514dc9c53f2f91 
+打开 点击 号： https://github.com/vgedo-krowde/chiyoucy/commit/4b29b1fc3b5f5f554b3d52ecf02930092a68b888 
+食用指南： https://github.com/ucualbs/gppyjwc/commit/6e78407050beeb06c320cb47d934d8226927bd08 
+适用于 macOS 的现代媒体播放器： https://github.com/croxdangelondon/poplygj/commit/6b62fbf1163a7b0e9d658698c333a8240e08b3df 
+直播电视和广播客户端插件： https://github.com/ah9082008-moedhu/isazpo/commit/1b4121eb6bb74955e8c3df5da9cf43a9d948aa35 
+具有库支持的免费跨平台媒体播放器： https://github.com/vgedo-krowde/chiyoucy/commit/d7ca6e299cd84cd4a713f9132d76494bd28abd0f 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/croxdangelondon/poplygj/commit/2bd1f222b1c0f301d41cb7fb5cd1ff496e194d81 
+支持 IPTV 流的应用程序： https://github.com/ucualbs/gppyjwc/commit/d53c42962b54c0751059f75f0989bbd94086a7d8 
+工具： https://github.com/ah9082008-moedhu/isazpo/commit/5ead75bdb681905c9e18af28d94e49b3a00ea494 
+轮播华数求索爱奇艺 2026-07-19 更新： https://github.com/vgedo-krowde/chiyoucy/commit/145e9569afed742dcd60fb017b8c0bd59f2dc96a 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/croxdangelondon/poplygj/commit/98d4f73afbf02ec98f6d66255ea312ed2f5f12e1 
+台湾香港海外直播源 2026-07-19 更新： https://github.com/ucualbs/gppyjwc/commit/7becf69d1a1bc3e6643ccec9f6e358b8b6ab0979 
+各大卫视、上千个地方台： https://github.com/vgedo-krowde/chiyoucy/commit/34c4bb95879a5b3388bd224a2572eec37e1fd955 
+国内电视台直播源 2026-07-19 更新： https://github.com/ah9082008-moedhu/isazpo/commit/a4c61dbda25989733785ad3ddee20e9b1dd3ce97 
+卫视腾讯云： https://github.com/croxdangelondon/poplygj/commit/41d1f406a134574225b5c5adba8c12640f88b4c7 
+卫视平顶山学院教育网： https://github.com/ucualbs/gppyjwc/commit/fe99b589a8a907223d0a0ab322933f39e054f210 
+卫视天途云： https://github.com/ah9082008-moedhu/isazpo/commit/d4b8ada75d764d303652820bf2804fe65ff1b383 
+卫视地方台安徽农大： https://github.com/vgedo-krowde/chiyoucy/commit/cf69972b36a7505f5e426d1dbb1cf279d086c8ba 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/croxdangelondon/poplygj/commit/a2bb118b30efbce3e64914c013ac9be14b9614ae 
+央视卫视广西移动直播源： https://github.com/ah9082008-moedhu/isazpo/commit/55e03540e13395be8adcc66be3f2733ea135c6d3 
+付费频道直播源： https://github.com/ucualbs/gppyjwc/commit/0b7d3041543c152c7a8654133928fc16267d0c87 
+国家直播源多个全部有效： https://github.com/vgedo-krowde/chiyoucy/commit/5ae1c7a2f8de3f06e4dc9edfe4566613a8c9e0eb 
+直播源全部有效： https://github.com/ah9082008-moedhu/isazpo/commit/507c9219debf5c3ff972e74c5b6c4409e729a051 
+全部有效： https://github.com/croxdangelondon/poplygj/commit/5f8be6d326d1749c86c1ccb8d239a1bd1b00682e 
+直播源全部有效老电脑别用： https://github.com/ucualbs/gppyjwc/commit/78949e3657360a905551a8f88b7616dd21fbc996 
+影视剧场全部流畅： https://github.com/vgedo-krowde/chiyoucy/commit/7356197df07ffb9bf13d65c3c93909dbaeb81694 
+全部可用： https://github.com/ah9082008-moedhu/isazpo/commit/708800e76b7f289ee167ccbf189bc67c558140d7 
+我的播放源： https://github.com/croxdangelondon/poplygj/commit/031937215779449c2ea33c1eb3f952809f6ac2a6 
+其他直播源 不确定有效性： https://github.com/ucualbs/gppyjwc/commit/2c2d2afb3fb7ae4b26e420eb6cfb236dc5f6bb7e 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/5149af084bf5a48ab6db9873c47e62a3d1996121 
+新疆 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/1d03aa0941047c4f15c5e13bf43a79c63acfeaf3 
+内蒙古联通 udp 组播下载地址： https://github.com/ucualbs/gppyjwc/commit/661bc1d0ac4e49e7cde8837103b4cdc5a4311629 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/0afc2e14ff1ede8113bb0f5b48382de577dc25f0 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/792c446f60a791f1f6af97088ad827e2aa72e6a1 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/6a30a635c2bf8c7356c8a53991a23ccd0cd789da 
+内蒙古 IPTV 直播源： https://github.com/ucualbs/gppyjwc/commit/d5eeefcda03bfa5e599dae51f44bb7eb077d8a42 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/e8611edf6608fdf96154c7c4d1454424720cd07b 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/b5cefa6b466459982c784b69459d33b7c1be0fc6 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/bae9ffb2dae0e2de024fc43022ffd05762e03782 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/4b7f97b1add55e8c2a49467e915cd9f87da167bd 
+黑龙江 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/c95488246b151f9381fba45c0b5015e50b226bf9 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/f3d22b485edafb8f6616a709135bfdda65feb5a6 
+吉林 IPTV 直播源： https://github.com/ah9082008-moedhu/isazpo/commit/1ad6c488b77315e6719ced925c7d103e7e007e19 
+辽宁移动直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/939f083980053bb7792d74c0137a8c077aa3415a 
+辽宁电信 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/7fc5c93909d63b45dcdfe8b1395ed1a136996144 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/96d5f3c01ce1d507a77fce620a55762574a9646f 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/6dd8e40e66b86bd68a593d3a4d00fd1d8218a86f 
+辽宁联通 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/4bf6c7a3d0d0cb8fe96f9d9238de4badd3379535 
+辽宁 IPTV 直播源： https://github.com/croxdangelondon/poplygj/commit/de65a1d711e6e1c4758e1d106a002b7516d72d4d 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/caf8ad823c4bfc43ad231fe6c940ab18292f5a34 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/26a8a015b35732f668cdfa91e0d64f3f3e629288 
+浙江联通 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/0f2d4eb7f2a8528ca59fb2272033acbe0c1b754b 
+浙江移动 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/d86361d67338cb7c553b85ea0a1d4c1019e3b506 
+浙江 IPTV 直播源： https://github.com/vgedo-krowde/chiyoucy/commit/f8e0638ccdcef21b12c7832db482607e80b18040 
+江西联通 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/7827ae2040cb6090416bb8fc22c2ac601f4154a2 
+江西电信组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/4d5754c9f9d2e95b42468f87b908e7da97772d65 
+江西电信 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/f4f2f7ca2c2fbbd5bf82668ad43b1d16546b9b36 
+江西移动 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/681f42522cfda95fd7e416dfcd63b9e7cb14d345 
+江西 IPTV 直播源： https://github.com/ucualbs/gppyjwc/commit/7d23ac5410caebada8475d77e754bf072addcbb3 
+江苏移动 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/615d39e13893b8c08c06743c924cd2c3cf70431d 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/bdf04097ceff81c4f60c22e724b1a9d7e1f929e2 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/76dc20d9668df65167bf0336e463c6edc693742f 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/47fd54eed1632db3372f64bba1a4f330a845380f 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/295a4c2d40efcb8b90ecc5080916f5a12b81ed97 
+江苏电信 IPTV 直播源下载地址： https://github.com/croxdangelondon/poplygj/commit/70ed0a3599eeaf473361cbde4e5e7f686c1e66f9 
+江苏 IPTV 直播源： https://github.com/ucualbs/gppyjwc/commit/7755e61959a27b3f0b5da0badf56881f414d5052 
+安徽广电 IPTV 直播源下载地址： https://github.com/vgedo-krowde/chiyoucy/commit/8944892b690dc6a25ccc03c719ca7c776b3988b0 
+海南电信组播 IPTV 直播源下载地址： https://github.com/ah9082008-moedhu/isazpo/commit/51f7a78d329f2d5e70b893e8c2be609dd4db687b 
+海南联通组播 IPTV 直播源下载地址： https://github.com/ucualbs/gppyjwc/commit/5e467d5ec3853833abb8bfe57f79374484d11d25 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月20日12时04分00秒
+来源：https://github.com/vgedo-krowde/chiyoucy/commit/bae59955c324c57cfcac34499a9a20864000a840 
+来源：https://github.com/croxdangelondon/poplygj/commit/78257efdcd9f8c67c2c48b6b988e0f13f9d140a7 
+来源：https://github.com/ah9082008-moedhu/isazpo/commit/a9a6dc218febc1e8a585ae588a5d36d94a165de6 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月20日12时04分00秒
